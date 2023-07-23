@@ -6,7 +6,7 @@ Since 2019, we’ve been focused on creating a vibrant collaborative creative co
 
 [Visit our website](https://swarmcreative.co)
 
-### Follow Swarm Creative on Social Media
+### Follow SWARM on Social Media
 
 - [Instagram](https://www.instagram.com/agentsofswarm)
 - [Twitter](https://twitter.com/agentsofswarm)
