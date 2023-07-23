@@ -13,4 +13,5 @@ Since 2019, we’ve been focused on creating a vibrant collaborative creative co
 - [Kick](https://kick.com/agentsofswarm)
 - [YouTube](https://www.youtube.com/channel/UCnGVwVYfDjTOWRQjnfJEkQA)
 - [TikTok](https://www.tiktok.com/@agents_of_swarm)
+- [LinkedIn](https://www.linkedin.com/company/agents-of-swarm)
   
