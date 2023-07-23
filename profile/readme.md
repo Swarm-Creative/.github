@@ -1,4 +1,4 @@
-# *Empower Your Ideas With Audacious Creativity*
+# *Stop Dreaming. Start Creating*
 
 ### About Us
 
