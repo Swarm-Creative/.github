@@ -9,10 +9,8 @@ Agents of SWARM is an online community that exists to inspire and empower creati
 ### Follow SWARM on Social Media
 
 - [Instagram](https://www.instagram.com/agentsofswarm)
-- [Twitter](https://twitter.com/agentsofswarm)
-- [Kick](https://kick.com/agentsofswarm)
+- [BlueSky](https://bsky.app/profile/agentsofswarm.com)
 - [YouTube](https://www.youtube.com/channel/UCnGVwVYfDjTOWRQjnfJEkQA)
 - [TikTok](https://www.tiktok.com/@agents_of_swarm)
-- [LinkedIn](https://www.linkedin.com/company/agents-of-swarm)
-- [Threads](https://threads.net/agentsofswarm)
+- [Twitch](https://www.twitch.tv/agentsofswarm)
   
