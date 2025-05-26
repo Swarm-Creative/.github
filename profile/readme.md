@@ -11,6 +11,5 @@ Agents of SWARM is an online community that exists to inspire and empower creati
 - [IndieDB](https://www.indiedb.com/company/agents-of-swarm)
 - [BlueSky](https://bsky.app/profile/agentsofswarm.com)
 - [YouTube](https://www.youtube.com/channel/UCnGVwVYfDjTOWRQjnfJEkQA)
-- [TikTok](https://www.tiktok.com/@agents_of_swarm)
 - [Twitch](https://www.twitch.tv/agentsofswarm)
   
